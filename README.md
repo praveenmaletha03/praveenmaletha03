@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @praveenmaletha03
+- 👋 Hi, I’m @praveen maletha
 - 👀 I’m interested in taking challenges
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me praveenmaletha4543@gmail.com
